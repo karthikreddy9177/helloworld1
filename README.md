@@ -1,1 +1,2 @@
-My name is karthikand i am figuring my things currently, hope so
+hi guys i am updating this file for fun
+
